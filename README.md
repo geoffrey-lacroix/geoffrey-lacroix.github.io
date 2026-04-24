@@ -2,7 +2,7 @@ Ton père biologique (moi) espère te retrouver et être juste là pour toi, qua
 
 # 🖤 Victor 🖤, tu es aimé !
 
-# à bientôt mon 🐺♥️ !
+ à bientôt mon 🐺♥️ !
 
 # 🏴‍☠️ Corsaire Heritage 🏴‍☠️
 
