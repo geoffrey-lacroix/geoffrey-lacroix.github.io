@@ -1,2 +1,1 @@
-# geoffrey-lacroix.github.io
-Geoffrey Lacroix, pour Victor, mon fils aimé 
+# Geoffrey Lacroix, pour Victor, mon fils aimé, j'attends de te retrouver et de répondre à tes questions...
