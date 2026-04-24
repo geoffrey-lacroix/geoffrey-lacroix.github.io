@@ -1,4 +1,4 @@
-# ♥️ Ton père biologique (moi) espère te retrouver Victor, et juste être là pour toi ♥️
+# ♥️ Ton père biologique (moi) espère te retrouver et juste être là pour toi ♥️
 
 🖤 Victor 🖤, je t'aime tous les jours, même séparés de force !
 
