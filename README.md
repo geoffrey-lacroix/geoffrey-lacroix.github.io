@@ -1,3 +1,4 @@
-# Geoffrey Lacroix, pour Victor, mon fils aimé : j'espère te retrouver et pouvoir répondre à tes questions. 
-Victor, ton père t'aime tous les jours, même séparés de force !
-à bientôt !
+# Ton père biologique espère te retrouver et enfin pouvoir juste être là pour toi.
+Victor, je t'aime tous les jours, même séparés de force !
+à bientôt mon 🐺 !
+🏴‍☠️ Corsaire Heritage 🏴‍☠️
