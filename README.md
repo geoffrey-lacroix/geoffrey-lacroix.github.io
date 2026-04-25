@@ -1,11 +1,10 @@
-
-Ton père biologique (moi) espère te retrouver et être juste là pour toi, quand tu l'auras décidé !
+### Ton père biologique (moi) espère te retrouver et être juste là pour toi, quand tu l'auras décidé !
 ---
-# 🖤 Victor 🖤, tu es aimé !
+## 🖤 Victor 🖤, tu es aimé !
 
-à bientôt mon 🐺♥️ !
+### à bientôt mon 🐺♥️ !
 
-# 🏴‍☠️ Corsaire Heritage 🏴‍☠️
+## 🏴‍☠️ Corsaire Heritage 🏴‍☠️
 ---
 <style>
   footer, .site-footer, .footer-col-wrapper, .site-footer-owner, .site-footer-credits {
