@@ -1,8 +1,8 @@
+<h1 style="font-size: 1.6rem; white-space: nowrap;">⚔️ Victor, mon fils aimé ⚔️</h1>
+
 ### Ton père biologique (moi) espère te retrouver et être juste là pour toi, quand tu l'auras décidé !
 
 **Contact sécurisé :** [Contact](mailto:geof.lac@gmail.com)
-
-### Victor, tu es aimé !
 
 ### à bientôt mon 🐺 !
 
