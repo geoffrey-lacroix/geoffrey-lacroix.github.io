@@ -1,5 +1,7 @@
 ### Ton père biologique (moi) espère te retrouver et être juste là pour toi, quand tu l'auras décidé !
 
+**Contact sécurisé :** [Contact](mailto:geof.lac@gmail.com)
+
 ### Victor, tu es aimé !
 
 ### à bientôt mon 🐺 !
