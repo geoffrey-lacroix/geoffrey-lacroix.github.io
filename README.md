@@ -8,7 +8,7 @@
 
 ### à bientôt 🐺 
 
-### 🏴‍☠️ Corsaire Heritage 🏴‍☠️
+## 🏴‍☠️ Corsaire Heritage 🏴‍☠️
 
 <style>
   footer, .site-footer, .footer-col-wrapper, .site-footer-owner, .site-footer-credits {
