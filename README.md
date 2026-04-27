@@ -1,9 +1,6 @@
----
-title: Victor Barré de Saint Venant Lacroix
-description: Espace de contact personnel pour Victor Barré de Saint Venant Lacroix.
----
-
 <h1 style="font-size: 1.6rem; white-space: nowrap;">⚔️ Victor, mon fils aimé ⚔️</h1>
+
+<span style="display:none">Victor Barré de Saint Venant Lacroix</span>
 
 ### Ton père biologique (moi) espère te retrouver et être juste là pour toi, quand tu l'auras décidé.
 
