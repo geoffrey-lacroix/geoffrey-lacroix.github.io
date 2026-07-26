@@ -4,7 +4,7 @@
 
 ### Ton père biologique (moi) espère te retrouver et être juste là pour toi, quand tu l'auras décidé.
 
-###  Victor, tu es aimé.
+###  Victor, même déplacé a toulouse de force pour te priver de ton papa, tu es aimé. Les folles restent des folles....
 
 **Contact sécurisé :** [Contact](mailto:geof.lac@gmail.com)
 
